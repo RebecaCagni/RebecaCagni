@@ -1,7 +1,7 @@
 
 ### Hi I'm Rebeca Cagni 👋
 - 🌱 IT (SPtech- São Paulo Tech School)
-- 📫 Contact: rebeca.cagni@sptech.school 
+- 📫 Contact: rebeca.cagni@gmail.com
 -  😄 Pronouns: She/her
 
   <div  align="center">
